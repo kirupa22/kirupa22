@@ -1,1 +1,1 @@
-#Hi there 👩🏻‍🎓 I'm KIRUPALAKSHMI G
+# Hi there 👩🏻‍🎓 I'm KIRUPALAKSHMI.G
